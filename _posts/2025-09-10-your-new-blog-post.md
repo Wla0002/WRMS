@@ -1,7 +1,7 @@
 
 # West Virginia, A Perpetual Victim of Curses and Perception
 
-**Will Arnold, 26, Morgantown, WV**
+**Well Respected Media Source, 26, Morgantown, WV**
 
 I am a native West Virginian dedicated to bringing awareness to the unique societal challenges faced by the great people of my state. In this piece, I speak candidly about our hardships, touching on key issues without delving too deeply into each one. You are encouraged to explore these topics further—whether through independent research or links to my more in-depth posts where applicable.
 
